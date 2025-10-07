@@ -1,6 +1,6 @@
 </p>
 
-## [More skins] (https://drive.google.com/drive/folders/1IUHX3T-iiL5Hdc-L9oKO_ACy2a5-2krS)
+## [More skins](https://drive.google.com/drive/folders/1IUHX3T-iiL5Hdc-L9oKO_ACy2a5-2krS)
 ## [My osu web page](https://osu.ppy.sh/users/12096299)
 ## [The best video ever](https://www.tiktok.com/@danbaker634/video/7523722854408506655?is_from_webapp=1&sender_device=pc)
 ---
